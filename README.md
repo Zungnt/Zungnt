@@ -2,7 +2,7 @@
 - 👀 I’m interested in 3D animation, modeling, Game, simulation, Unreal engine, VFX, CGI.
 - 💞️ I’m looking to collaborate on 3D game developers, VR, simulation.
 - 📫 My WhatsApp: +84 91 220 29 68
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
 <!---
